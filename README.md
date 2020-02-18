@@ -1,6 +1,6 @@
 # Mapping of UN Mandates
 
-A more coherent and coordinated delivery of UN services at the country level has been a long-agreed goal.  In order to enhance the efficiency and impact of the UN system in the delivery of critical areas of development, environment, and humanitarian assistance as well as to avoid duplication of work, different UN agencies must work together as "One UN".  
+A more coherent and coordinated delivery of United Nations services at the country level has been a long-agreed goal.  In order to enhance the efficiency and impact of the UN system in the delivery of critical areas of development, environment, and humanitarian assistance as well as to avoid duplication of work, different UN agencies must work together as "One UN".  
 
 However, partnerships between UN agencies can be complicated due to changes in name, reporting structure and/or size of various departments. Different new initiatives, task-forces, working-group, reforms established also contribute to the complexity of the UN system. For instance, there are already over 100 UN entities when one looks at the UN System Chart and there are many other commities etc. are not on the chart.  
 
