@@ -1,4 +1,4 @@
-# Mapping of UN Mandates
+# Mapping of United Nations Mandates
 
 A more coherent and coordinated delivery of United Nations services at the country level has been a long-agreed goal.  In order to enhance the efficiency and impact of the UN system in the delivery of critical areas of development, environment, and humanitarian assistance as well as to avoid duplication of work, different UN agencies must work together as "One UN".  
 
